@@ -1,0 +1,6 @@
+---
+tags:
+- fleetingnote/topic
+aliases:
+---
+

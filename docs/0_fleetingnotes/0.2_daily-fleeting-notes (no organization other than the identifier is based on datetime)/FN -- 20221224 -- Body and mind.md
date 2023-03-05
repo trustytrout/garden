@@ -1,0 +1,1 @@
+I experience this finite world and universe <u>through</u> this body and mind.  But there is no separation.  This finte world and universe is not "real".
